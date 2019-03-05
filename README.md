@@ -4,8 +4,11 @@ Mark's life and death. Explicit content!
 
 It was a typical summer night in Houston, Texas. The stars were beaming through the darkened sky, and the oak and crape myrtle limbs while they swayed to a light breeze, with shimmers reflecting off the glass panes of the large townhomes that were on either side of our little house off Asbury St. It was 9:00PM and so far, it was a calm, beautiful night. 
 
-	“Get out of the shower, Markie! It’s been an hour and all you do is form a circle under the water in rinse-cycle,” I said, as I looked through the glass boxed-in shower in the tiny pale blue bathroom, gazing at my reflection in the mirror that had a soft dome light illuminating from the underlying frame. I could smell the sweet aroma from the inordinate amount of soap he used on his body showering, while he had the bathroom door opened with steam swelling out the top of the shower. He loved to be clean and it was apparent in the sweet smell of his body.
-I glanced outside the back door again to access the unpredictable weather… It was quickly changing. I could smell, earth and rain as I opened the door.  
+	“Get out of the shower, Markie! It’s been an hour and all you do is form a circle under the water in rinse-cycle,” I said, as I looked through the glass boxed-in shower in the tiny pale blue bathroom, gazing at my reflection in the mirror that had a soft dome light illuminating from the underlying frame. 
+	
+	I could smell the sweet aroma from the inordinate amount of soap he used on his body showering, while he had the bathroom door opened with steam swelling out the top of the shower. He loved to be clean and it was apparent in the sweet smell of his body.
+
+	I glanced outside the back door again to access the unpredictable weather… It was quickly changing. I could smell, earth and rain as I opened the door.  
 
 	My nostrils were immediately moistened from the ever present humidity in Texas. I saw a lightening bolt flash, but no thunder was heard. 
 
@@ -15,9 +18,16 @@ I glanced outside the back door again to access the unpredictable weather… It 
 
 	“You do this to me every time, Markie, and I’m the one who has to call and either cancel or tell the people waiting that we are running late… again!” 
 
-	I actually liked to watch him take a shower, with that Brawny German physique, beautiful silky skin with just the right amount of medium-brown hair that made him sexy, no matter what he wore or didn’t wear. He was a little over 6 feet tall, with a slightly receding hair-line at the top, and medium-brown, fully round eyes with spectacles that made him appear more studious, which he was already. He had the genes. He was built like a tank; dense muscle fibers and a very masculine frame. His hands were large, meat paws, and  his fingers like sausages… Quite the total package with a brilliant mind. I was 6 feet tall with gleaming skin, a very youthful appearance and always had a pink glow about my skin. I was lean because I would run daily… even when splashing through the pavement of some torrential down-pour.
+	I actually liked to watch him take a shower, with that Brawny German physique, beautiful silky skin with just the right amount of medium-brown hair that made him sexy, no matter what he wore or didn’t wear. He was a little over 6 feet tall, with a slightly receding hair-line at the top, and medium-brown, fully round eyes with spectacles that made him appear more studious, which he was already. He had the genes. 
+	
+	He was built like a tank; dense muscle fibers and a very masculine frame.
+	His hands were large, meat paws, and  his fingers like sausages… Quite the total package with a brilliant mind. I was 6 feet tall with gleaming skin, a very youthful appearance and always had a pink glow about my skin. I was lean because 
+	
+	I would run daily… even when splashing through the pavement of some torrential down-pour.
 
-	We loved each other very much. Mark adored me, before I had a chance to rest my head on the pillow on our soft, queen-sized bed that succumbed you to the call of sleep, he had his hand and arm behind my head pulling 	me toward him for a sweet wet kiss. I loved being loved by Mark and It was an amazing experience being around him; always something interesting. It was a though I had a chance to relive all the negative experiences in relationships I’ve had prior, but instead this time making the right choices; choosing only the precise, selected words to say, making things better this go-round. As I glanced over at the shower,
+	We loved each other very much. Mark adored me, before I had a chance to rest my head on the pillow on our soft, queen-sized bed that succumbed you to the call of sleep, he had his hand and arm behind my head pulling 	me toward him for a sweet wet kiss. I loved being loved by Mark and It was an amazing experience being around him; always something interesting. 
+	
+	It was a though I had a chance to relive all the negative experiences in relationships I’ve had prior, but instead this time making the right choices; choosing only the precise, selected words to say, making things better this go-round. As I glanced over at the shower,
 
 	“OMG, Markie, You’re drying off! We just might make it on time for the first time in a long time.” 
 
@@ -25,13 +35,21 @@ I glanced outside the back door again to access the unpredictable weather… It 
 
 	I replied, “Because we did that last weekend! You know, Markie, one day we’re going to be too old and won’t feel like going out then, because we’ll look ancient and unattractive, but until then, we are going on the town and partying like youngsters. I’m sorry you’re an old man, but I’m not there yet!”
 
-	Mark and I lived together in his small two bedroom house that was on peers and built with ship-lap in Rice Military, near River Oaks. There were tall three-story townhomes on either side of our little bungalow. Mark remodeled the house by himself. It was originally built in the late 20’s. He had an Architect and Business Degree from Kent State. He was a Mid-Westerner from Ohio. I was coon-ass from Louisiana, going to SMU, School of Engineering, and had a home-audio business. He was nine years older than I and unique. I’ve never met anyone like him. He had the physique, the intellect, the wit, oh, and the temper. 
-	I had my self-absorbed, over-bearing personality with a touch of bipolar disorder. We often fought over things that were seemingly my fault. It were as though Mark were always teaching me something when we’d have a discussion or disagreement. I would try and block him out but he was relentless and would continue until I’d cease what I was saying and give him the undivided attention he felt he deserved. He was hard to argue with. He always won. That big head of his had a lot of grey matter. I used to call him, “Mellon head.”
+	Mark and I lived together in his small two bedroom house that was on peers and built with ship-lap in Rice Military, near River Oaks. There were tall three-story townhomes on either side of our little bungalow. Mark remodeled the house by himself. It was originally built in the late 20’s. He had an Architect and Business Degree from Kent State. He was a Mid-Westerner from Ohio. 
+	
+	I was coon-ass from Louisiana, going to SMU, School of Engineering, and had a home-audio business. He was nine years older than I and unique. I’ve never met anyone like him. He had the physique, the intellect, the wit, oh, and the temper. 
+	
+	I had my self-absorbed, over-bearing personality with a touch of bipolar disorder. We often fought over things that were seemingly my fault. It were as though Mark were always teaching me something when we’d have a discussion or disagreement. 
+	
+	I would try and block him out but he was relentless and would continue until I’d cease what I was saying and give him the undivided attention he felt he deserved. He was hard to argue with. He always won. That big head of his had a lot of grey matter. I used to call him, “Mellon head.”
 
-	We were meeting Steve and Nick at BRB’s in Mid-Town. A gay country and western club that was very popular with the gay cowboys who loved to wear their tight wrangler jeans and boots made of ostrich, which was the in-thing in 2004. We both got dressed fairly quickly. I was dressed in tight blue jeans, black shirt and brown boots. Mark was dressed in blue jeans, read shirt and his favorite dark red boots. Only he could fill in jeans that way; bubble-but and quite a package. I was the lean one… the runner and looked small by comparison next to his stature. Mark used to call me a lesbian because I had a pretty face. I used to tell him, “You are all dick and ass, Markie-pooh!” You are all glow and glitter, Waybie-butt!” That’s what we called each other; our pet names. Mark was the thinker and I had the charm. We were made for each other. 
+	We were meeting Steve and Nick at BRB’s in Mid-Town. A gay country and western club that was very popular with the gay cowboys who loved to wear their tight wrangler jeans and boots made of ostrich, which was the in-thing in 2004. We both got dressed fairly quickly. I was dressed in tight blue jeans, black shirt and brown boots. Mark was dressed in blue jeans, read shirt and his favorite dark red boots. Only he could fill in jeans that way; bubble-but and quite a package. 
+	
+	I was the lean one… the runner and looked small by comparison next to his stature. Mark used to call me a lesbian because I had a pretty face. I used to tell him, “You are all dick and ass, Markie-pooh!” You are all glow and glitter, Waybie-butt!” That’s what we called each other; our pet names. Mark was the thinker and I had the charm. We were made for each other. 
 
 	We’re finally ready to exit the front door. We walked out the door, and got in his silver Chevy Impala car with grey cloth seats that always had packaging material and books with binders all along the front passenger seat and in both rear seats. It looked as though he were in college still from the big mess he had. He would have to take all that stuff out of this car and put it in the trunk when we’d use it. 
-He looked over at me and said, “You look nice, Waybie! You smell nice too. New cologne?” 
+
+	He looked over at me and said, “You look nice, Waybie! You smell nice too. New cologne?” 
 
 	I replied, “Yes, your stuff. Your new stuff,” we both chuckled. He looked great, and he smelled delicious! 
 He always had a nice soapy aroma smell to him. When he’d leave for work in the morning before I did, I would hug his pillow and smell it. It smelled fresh, just like him. We drive two feet out of the driveway and he says, 
@@ -48,7 +66,11 @@ He comes out and says, “Don’t do that. It disturbs the neighbors; waving his
 	“Well, I may not be of any good because I want to get hammered too." We decided to take a cab. Back to the rear part of the driveway we went. 
 
 
-	I called yellow cab. I walked up and down the pavement in high expectations of being noticed at the club tonight. I was so self-absorbed, with just the right amount of arrogance to make it appealing for someone interested in a person with bloated self-confidence. I looked and felt pretty and knew I had to make my mark before my youth had expired. A yellow taxi showed up in 15 minutes. It was well-worn and smelled like smoke and bad breath and had an Indian driver with a tag that read the name, “Kamihl.” The top of the ceiling was coming apart; falling down with burn marks on it. We leave the drive way and make it to mid-town where the club was, which was 12 minutes away. Mark pays the cab driver. We briskly walk through the parking lot with an inordinate amount of Mercedes, Beamers, and Land Rovers packed tightly between the white lines. We walked across the street of heavy traffic, listening to car doors slamming and motors whining by, witnessing people scurrying about to get to the gay club, our club, and also the entrance to the immense red straight club that was right next to BRB. We walked in, paid our 5 bucks a piece, and entered the bar. 
+	I called yellow cab. I walked up and down the pavement in high expectations of being noticed at the club tonight. I was so self-absorbed, with just the right amount of arrogance to make it appealing for someone interested in a person with bloated self-confidence. I looked and felt pretty and knew I had to make my mark before my youth had expired. A yellow taxi showed up in 15 minutes. 
+	
+	It was well-worn and smelled like smoke and bad breath and had an Indian driver with a tag that read the name, “Kamihl.” The top of the ceiling was coming apart; falling down with burn marks on it. We leave the drive way and make it to mid-town where the club was, which was 12 minutes away. 
+	
+	Mark pays the cab driver. We briskly walk through the parking lot with an inordinate amount of Mercedes, Beamers, and Land Rovers packed tightly between the white lines. We walked across the street of heavy traffic, listening to car doors slamming and motors whining by, witnessing people scurrying about to get to the gay club, our club, and also the entrance to the immense red straight club that was right next to BRB. We walked in, paid our 5 bucks a piece, and entered the bar. 
 
 	It had a large entrance bar as you initially walked in, a patio bar, and a huge dance floor with a giant silver pole in the middle with lots of two-steppers and neon rope lighting hanging from the ceiling and edged all around where the floor met that very large platform of dancers. It had a barrage of fluorescent lighting too with cowboys galore. It smelled of leather and smoke. 
 
@@ -56,8 +78,7 @@ He comes out and says, “Don’t do that. It disturbs the neighbors; waving his
 	
 	We always experienced this at the club when we walked in. They’d always tell us, “I just have to say, you guys are a hot couple. I don't wanna have sex with you; I just wanna watch!” It was not uncommon to go through that at the clubs… typical gays. 
 
-
-We see Steve and Nick standing in line away from the spotlight at the side-bar. “Steve is already drunk!” I told mark, over the very loud speakers, that dominated the atmosphere, that was hanging from the ceiling deafening our ears. I could tell by that far-off look on his face and glassy, blood-shot eyes, and his hands in his jean’s pockets with his dick hanging to the side that he was inebriated. 
+	We see Steve and Nick standing in line away from the spotlight at the side-bar. “Steve is already drunk!” I told mark, over the very loud speakers, that dominated the atmosphere, that was hanging from the ceiling deafening our ears. I could tell by that far-off look on his face and glassy, blood-shot eyes, and his hands in his jean’s pockets with his dick hanging to the side that he was inebriated. 
 For someone who drinks all the time, he sure can’t handle his liquor! We approach them and give them big hugs and kisses. 
 
 	“Get me a drink!” Mark and I both said simultaneously to each of them. Steve starts being handsy with Mark; grabbing him in his crotch and telling him, Yummy, yum, yum Markie! I’m gonna get me some of that! 
@@ -71,17 +92,23 @@ Mark didn’t mind. He just liked the attention from Steve. Nick is standing beh
 	As I walked in from the patio, I noticed many eyes roaming me up and down. For the first time, I was very uncomfortable and turned around and walked to the rear bar where the two pool tables were. I looked over to my left as I'm waiting in line, and see a good looking guy standing there and blurt, “Are you a real cowboy or a drug store one?” This hot cowboy with a handsome face and a medium brown beard gets up off the stool and says, 
 
 	“I'm all cowboy and I'm married to a woman.” 
-I said, “I love hot, tall married guys with beards. 
+
+	I said, “I love hot, tall married guys with beards. 
 I’m with my partner but would love to exchange numbers... discretely.” “What's your name?” He asked. 
 I replied, “Bryan, with a ‘Y.’ Yours?” “My name is Cooper Parker.” 
 
 	“Love the name! Nice to meet you. We’ll chat later. I gotta run… Bye.” 
-I get the drinks and walked out onto the patio bar, where Mark was. He said, Wow! “That was you, Waybie!” I looked at this hot guy walk passed the window, in front of the pool tables, to the rear bar and had my tongue hanging out, stretching my neck trying to get a better look from the outside! Hottest guy I had seen in a while and it was you. Wow, you look great! 
+I get the drinks and walked out onto the patio bar, where Mark was. He said, Wow! “That was you, Waybie!” I looked at this hot guy walk passed the window, in front of the pool tables, to the rear bar and had my tongue hanging out, stretching my neck trying to get a better look from the outside! Hottest guy I had seen in a while and it was you. 
+
+	Wow, you look great! 
+	
 	When we get home, we’re gonna fuck on the kitchen table again, okay?” 
 
 	I replied, “I’m all in! You’re gonna have to be a bit quicker though ‘cause you are a lot to handle!” We both smiled huge grins at each other.
 
-	I felt a connection with Mark that night that was beyond physical which I needed to feel. Even though one of our dear friends told me he slept with Mark just a few weeks ago, which I never confronted Mark about. I still loved him very much and was committed to him. Mark and I had lots of chemistry, but even though the physical was all good, In addition, we were Psychologically linked. We understood each other’s quirks and major differences and sometimes we didn’t have to say anything at all to each other. 
+	I felt a connection with Mark that night that was beyond physical which I needed to feel. Even though one of our dear friends told me he slept with Mark just a few weeks ago, which I never confronted Mark about. I still loved him very much and was committed to him. Mark and I had lots of chemistry, but even though the physical was all good, In addition, we were Psychologically linked. 
+	
+	We understood each other’s quirks and major differences and sometimes we didn’t have to say anything at all to each other. 
 
 	It was just an immense feeling of safety, financial security, and togetherness. A bond that we felt from spending so much time together. We didn’t have a beautiful house or beautiful vehicles, we just had each other and that’s all we wanted. I pondered all these wonderful thoughts of us together. I felt ashamed and convicted that I exchanged numbers with this stranger and thought to myself, 
 
@@ -97,12 +124,13 @@ I get the drinks and walked out onto the patio bar, where Mark was. He said, Wow
 		
 	I’m starting to become separate in thought with Mark at various times without warning. It was eating me up inside. When I was with Mark, in his arms are having sex, I wouldn’t think about it, but when I was alone and away from him, I would and I didn’t like feeling cut off from him. 
 
-
 	I walked out of the bathroom floor and there was Cooper coming in. He said, “Hi Bryan,” as we gazed in each others eyes while we passed each other through the bathroom door’s exit/entrance. I didn’t say anything. I just dashed to the outside patio to get to Mark. “Hey, you ready, Markie?” He replied, “Yeah, I guess… call a cab.” “Oh, shit! That’s right! We took a cab. Okay, I’m calling now,” as I pulled out my cell phone. I called yellow cab but couldn’t connect or no one would answer. 
 
 	I told Mark, “Let’s go outside and catch one that way, okay?” He replied, “Sure. You’re paying this time.” 
 
-	I said, “Sure, I don’t mind. It was my idea anyway. First let’s go inside and tell Steve and Nick what we’re doing.” We went inside. It was nearing midnight and the club was packed. We walked around for 15 minutes just looking for them through countless people tightly packed in like sardines. We go to another self contained bar with it’s own music and closed doors that were sealed to filter out music with dual zones for privacy. It was darker than the main club with a juke box and neon, Miller and Chores light bear signs hanging on the walls. The bar was right in the middle and long with black cushioned stools all around it. We see Steve sitting on a stool with his head in the chest of a young cowboy, licking his tits and arm pits with his fat tongue. I walked up to him, 
+	I said, “Sure, I don’t mind. It was my idea anyway. First let’s go inside and tell Steve and Nick what we’re doing.” We went inside. It was nearing midnight and the club was packed. We walked around for 15 minutes just looking for them through countless people tightly packed in like sardines. We go to another self contained bar with it’s own music and closed doors that were sealed to filter out music with dual zones for privacy. 
+	
+	It was darker than the main club with a juke box and neon, Miller and Chores light bear signs hanging on the walls. The bar was right in the middle and long with black cushioned stools all around it. We see Steve sitting on a stool with his head in the chest of a young cowboy, licking his tits and arm pits with his fat tongue. I walked up to him, 
 
 	“You are a nasty boy, Stevie.” I looked over at the young man and said, “Do you have any idea where that nasty tongue has been? He’s sucked every dick in this place and swallows!” Steve picks up his head and starts cracking up. I said, 
 
@@ -117,6 +145,7 @@ I get the drinks and walked out onto the patio bar, where Mark was. He said, Wow
 He replied, “You’re gonna buy all the booze then, if I’m gonna get on the floor and shake this body.” “I sure will… just to see it move, baby.” 
 
 	I was pumped. Mark wasn’t the greatest dancer but to get him on the floor for only buying a few drinks was worth every penny. I’d spend hundreds to see that. He was hysterical to watch. He’d really try hard to concentrate in order to move his body in sync with the beat while he was trying to dance. I’d reach over to him while he was moving and grab his shoulders sternly making them immovable and then he’d shift his lower body moving his hips, side to side, to the beat of the music and then I’d let him go on his own. 
+	
 	He would gradually start moving faster and faster until he found the rhythm. He would get his groove on… his own personal cadence! I would light up and laugh hysterically at him. He would dance to the beat and swing his arms in the air with a big ol smile on his face as though he’d just accomplished something astronomical, like winning the perslitzer prize or getting a PHD.
 
 	We make it to South Beach which was in Montrose, the gay circle for Houston, 10 minutes away from where we were. South Beach was setup off to its own corner and had three very large, tall, palm trees in the front. They must have been 25 feet tall and the club was enormous. It was grey in color and made of concrete and stucco, with South Beach written in purple neon lights on the front. It was 20 bucks a head for a Friday night and they stayed open until 5:00AM, but stopped serving liquor at 2:00AM. 
@@ -124,7 +153,9 @@ He replied, “You’re gonna buy all the booze then, if I’m gonna get on the 
 	They were very strict about their policy on liquor and age requirements. I paid the cover. We walked in to a clean, pristine environment. No cigarette smoking inside, just out on the huge rear patio. It had silk fabric hanging from the ceiling with every colored neon light, lighting it up conceivable. The dance floor lighting was a sight to see. It would swirl around and beam multi-colored lights in every imaginable fashion and direction, moving up and down these rails attached to the ceiling. 
 
 	The lighting alone was five hundred thousand dollars, and the sound-system was right at a Million. It also had a fog machine that would make it nearly impossible to see right in front of your face. It was nice to have when you’d meet someone new there and wanted to slip a quick kiss to them without anyone noticing on the dance floor. 
-Mark and I frequented that move a lot there. It had a mammoth dance floor made of maple wood with a bar rail along the sides of it also using that same lumbar. It was a high-end club with gorgeous dancers with amazing physiques and metro-sexual patrons, gay and lesbian customers with fancy cocktail party clothing; high-end brands. It was like something you’d see in New York, or LA.
+Mark and I frequented that move a lot there. 
+
+	It had a mammoth dance floor made of maple wood with a bar rail along the sides of it also using that same lumbar. It was a high-end club with gorgeous dancers with amazing physiques and metro-sexual patrons, gay and lesbian customers with fancy cocktail party clothing; high-end brands. It was like something you’d see in New York, or LA.
 
 	Mark and I make it to the mid-bar and stood in line for our drinks. 
 	
@@ -133,7 +164,9 @@ Mark and I frequented that move a lot there. It had a mammoth dance floor made o
 	I love you, Markie-pooh. “I love you too Waybie-butt and I’m also looking forward to being at home with you and the plans we have there. I’m really looking forward to that!” 
 
 	“So am I!” We got our drinks and off to the dance floor we went. The music just didn’t have us moving very much. It was more lyrical and less rhythm or beat oriented. After an hour had passed, 
-I told Mark, “I’m not feeling it tonight. I think we need to chug these drinks down and go home to explore something more interesting. You get my drift?” “Oh, I sure do!” 
+I told Mark, 
+
+	“I’m not feeling it tonight. I think we need to chug these drinks down and go home to explore something more interesting. You get my drift?” “Oh, I sure do!” 
 
 	We quickly drank those drinks and ran to the front entrance which was the only place to exit. I opened the door and said, “Woh! Look at all these people in line, Markie!” 
 
@@ -147,7 +180,8 @@ I told Mark, “I’m not feeling it tonight. I think we need to chug these drin
 
 	No, Waybie. I didn’t.” I opened the microwave and a bowl of soup was left in there with red tomato juice remnants splattered every where in the microwave. It completely covered the inside as though it exploded. “What is this?” “Oh, I 
 		forgot I was heating up some soup, Waybie. I’m sorry.” 
-“That’s okay, sweetheart. I’ll clean it up.” “Clean it up tomorrow.” “Oh, that’s disgusting - No way I’m gonna do it later. I paid a good penny for this very large nice Panasonic microwave.” 
+
+	“That’s okay, sweetheart. I’ll clean it up.” “Clean it up tomorrow.” “Oh, that’s disgusting - No way I’m gonna do it later. I paid a good penny for this very large nice Panasonic microwave.” 
 
 	Ding, dong…Ding, dong… 
 
@@ -159,7 +193,9 @@ I told Mark, “I’m not feeling it tonight. I think we need to chug these drin
 
 	Mark continues, “This is Bryan Guillory, my partner. He lives here with me. 
 
-	I extended my hand and shook there’s quickly, but sill no eye contact. I didn’t know of any real friends of Mark’s. My friends were his friends, but we’ve only been together for four years and we’ve only lived together for six months. I continued cleaning the microwave and tidied up the kitchen table for them to sit down, which is where company would sit when they’d come, which was very, very rare. We all sat down at the kitchen table which would only seat four persons anyway. I got a good look at the two of them. 
+	I extended my hand and shook there’s quickly, but sill no eye contact. I didn’t know of any real friends of Mark’s. My friends were his friends, but we’ve only been together for four years and we’ve only lived together for six months. I continued cleaning the microwave and tidied up the kitchen table for them to sit down, which is where company would sit when they’d come, which was very, very rare. 
+	
+	We all sat down at the kitchen table which would only seat four persons anyway. I got a good look at the two of them. 
 
 	Fred was Hispanic and looked very young in the face but not in the body, especially around the mid-section. Dennis looked much older with a full grey beard and sores all over his arms and he was scratching them, with the same body type as Fred. Dennis gets up and leans over to Mark and whispers something in his ear. 
 
@@ -169,7 +205,12 @@ I told Mark, “I’m not feeling it tonight. I think we need to chug these drin
 
 	Dennis puts a slab of the see-through Crystal out on one of the plates Markie got for him and crushes it up with a credit card and forms four lines for us. They were pretty big lines on the white plate and really hard to see because the Crystal was also white, crushed up. He looks at me and says, 
 
-	“It’s gonna burn really bad at first but it only lasts a few, okay?” “Yeah, okay. I’ll got first.” I snorted a portion of my line up in one nostril and then the remaining in the other nostril, like it was cocaine which I had also done before and OMG. It burned so darn badly. I let out an agonizing moan but the sensation almost immediately went away. They do their lines and all made the same faces and let out the same moans and groans. We were all at the kitchen table and I interjected, “Oh, how rude of me. Would you guys like something to drink? We have vodka, soda, orange juice, water, or beer.” 
+	“It’s gonna burn really bad at first but it only lasts a few, okay?” “Yeah, okay. I’ll got first.” I snorted a portion of my line up in one nostril and then the remaining in the other nostril, like it was cocaine which I had also done before and OMG. It burned so darn badly. 
+	
+	I let out an agonizing moan but the sensation almost immediately went away. They do their lines and all made the same faces and let out the same moans and groans. 
+	
+	We were all at the kitchen table and I interjected, “Oh, how rude of me. Would you guys like something to drink? We have vodka, soda, orange juice, water, or beer.” 
+	
 	All three of them said, “Vodka.” Mark looks at me and asks, “How much Vodka do we have left, Waybie?” “Plenty, baby.” I could feel a sense of heightened awareness and a euphoric state coming on and it was the best high I’d ever witnessed. 
 
 	I asked Fred and Dennis, “What would you like to mix the Vodka with guys? We have soda, and orange juice only.” “Orange juice, Bryan and thank you.” 
@@ -179,6 +220,7 @@ I told Mark, “I’m not feeling it tonight. I think we need to chug these drin
 	We gathered around that kitchen table and started talking about who we were and our occupation and education.  Fred spoke up and asked us, “How did you guys meet and how long have you been together?” I and Mark started talking at once, but I allowed Mark to tell his side of the story, which would be more interesting, considering I had never really heard his side, thoroughly, of our meeting from him, 
 
 	“Well, I remembered it was a Sunday night early and I was at JR’s alone sitting at the end of the front bar you see when you first walk into the club, and was watching TV minding my own business and not talking to anyone, and all of a sudden, this gorgeous guy comes up to me and extends his hand and tells me, 
+	
 	‘Toro Toro’ my name is Bryan Guillory, what’s your name? I shook his hand and told him my name was Mark Eagle.” 
 
 
@@ -197,7 +239,9 @@ I told Mark, “I’m not feeling it tonight. I think we need to chug these drin
 	Do you have that much?” “Yeah, I do, but only that 150 amount.” 
 
 
-	We continued talking until the sun came up at 6:20AM... it went by in a flash. Fred and Dennis left shortly after morning peeked its rising head through all the window blinds and curtains, revealing everything that was sleeping in the dark damp atmosphere. Mark and I just sat there and talked some more before deciding it was time to go lie down. We went to the bedroom, dimmed the lighting and proceeded to take off our clothes. I saw Mark remove his clothes and peered at his body-hair and how it chased his muscles up and down his torso and muscular legs, in all the right places and just how raw and manly it was. 
+	We continued talking until the sun came up at 6:20AM... it went by in a flash. Fred and Dennis left shortly after morning peeked its rising head through all the window blinds and curtains, revealing everything that was sleeping in the dark damp atmosphere. Mark and I just sat there and talked some more before deciding it was time to go lie down. We went to the bedroom, dimmed the lighting and proceeded to take off our clothes. 
+	
+	I saw Mark remove his clothes and peered at his body-hair and how it chased his muscles up and down his torso and muscular legs, in all the right places and just how raw and manly it was. 
 
 	Like a wave of intensity, an overwhelming urge came over me, like I’d never felt before, to devour all of his body parts. His physique was so sexy and masculine. I had to control my appetite by looking away and concentrating on something else, but I just couldn’t shake it. 
 
@@ -209,7 +253,9 @@ I told Mark, “I’m not feeling it tonight. I think we need to chug these drin
 		
 	“No, way. I’d love that. I’m way turned on right now. Please proceed. I’m all yours… have your way with me.” 
 
-	I started licking his nipples and his belly and could smell the soapy aroma on his skin. I licked off all the sweet smell in order to get to the musky scent. I then pulled down his shorts and continued my journey making sure I swallowed every inch of him. I salivated, moving my tongue around, until a few hours went by like a flash and I still wanted more and so did he. He said softly as though we had to keep our intense exploration and passion hush, hush, 
+	I started licking his nipples and his belly and could smell the soapy aroma on his skin. I licked off all the sweet smell in order to get to the musky scent. I then pulled down his shorts and continued my journey making sure I swallowed every inch of him. 
+	
+	I salivated, moving my tongue around, until a few hours went by like a flash and I still wanted more and so did he. He said softly as though we had to keep our intense exploration and passion hush, hush, 
 
 	“Let’s go to the kitchen table and fuck.” “Oh, fuck yeah… I’d love that.” 
 
@@ -256,14 +302,18 @@ He said, “This is the last night doing it this weekend and we are not to do it
 
 	I said, “I need a water bump.” 
 I waited for the Euphoria to pass and get to the horny state but it wouldn’t. Even after an hour of waiting. I told mark that it must happen when you’re coming down off the stuff that it becomes an aphrodisiac and increases libido. He agreed. We 
+	
 	listened to Madonna and Phyllis Hyman on the stereo for several hours until Mark said, “Let’s take a Viagra on it and see if it works together?” 
 
 	“That’s a great idea!” as I slammed down another vodka, soda, spilling it on my forehand as I licked it off so as not to waste it. 
 
 An hour went by and things were looking up for us. I placed my tongue in his mouth and licked the insides of his, tasting the mouth-wash he had used earlier. I pulled away from his sucking my tongue and licked his neck and cheeks, licking off soap and cologne, 
+	
 	I ravaged his armpits and nipples and I was salivating for my ultimate exploration. I grabbed him below and he was swollen to its maximum with his pointer way up high. I grabbed my phone and started video taping his physique and his member and played it back for him to see. He liked it. 
 
-	s I put the phone off to the side, I said, “Let’s get the large mirror off the wall and place it on the floor. I wanna watch us have sex in it.” “Oh, that would be hot. Let’s do it.” We adjusted our bodies and positioned them at just the right angle to capture it as we merged. We continued to video tape it as well. We video taped until the phone went dead and we were starting to realize it was late and we needed sleep in order to be functional at a work Monday.
+	s I put the phone off to the side, I said, “Let’s get the large mirror off the wall and place it on the floor. I wanna watch us have sex in it.” “Oh, that would be hot. Let’s do it.” We adjusted our bodies and positioned them at just the right angle to capture it as we merged.
+	
+	We continued to video tape it as well. We video taped until the phone went dead and we were starting to realize it was late and we needed sleep in order to be functional at a work Monday.
 
 We were spent and needed to hit the bed. It was 4:00AM on Sunday morning and we both had to be to work Monday… fairly early. 
 	Mark said, “Let’s take our Xanax, sleep-aid, and get some rest. 
@@ -284,7 +334,8 @@ We were spent and needed to hit the bed. It was 4:00AM on Sunday morning and we 
  	“I love you too, Waybie. Let’s never lose sight of that, okay?” “I’ll never put the sex before the love, if that’s what you mean.” “I don’t mind you desiring me. I just don’t want you to have sex with someone else the way you have it with me by cheating on me.”
  
  	“I would never do that to you, love. Have you ever cheated on me, Markie?” “Never, Waybie,” as he turned his head away from me and moved his eyes out of my reach of sight. I didn’t want to discuss it tonight. We needed to sleep. That was my goal. We lie down again and I immediately go to sleep. I would wake up sporadically because I could feel Mark shift about in the bed. 
-		I awoke to my body moving and fingers tightly wrapped around my arm, “Waybie… Waybie… wake up and feel this!” ‘OMG. Your dick is huge. 
+	
+	I awoke to my body moving and fingers tightly wrapped around my arm, “Waybie… Waybie… wake up and feel this!” ‘OMG. Your dick is huge. 
 
 	How nice!” “No… It’s not nice. It’s been this way for over four hours. I’ve taken NyQuil, another Xanax, and more sleep-aid and it still won’t go down.” “Oh, wow. This is the warning on the Viagra label. If more than four hours, go to the emergency room. I wonder what is so different about taking Viagra this time?” “I took that pill you gave me. The Trazzie, whatever pill.” “I don’t think that pill would cause this because it’s a tranquilizer. 
 
@@ -298,6 +349,7 @@ We were spent and needed to hit the bed. It was 4:00AM on Sunday morning and we 
 	“Does it still hurt, Markie?” “No… actually I don’t feel anything, but damn I have a big dick.” “Yes, you do honey. It looks delicious, actually.” We both laughed, which was the very reason I said it. We were dressed and out the door in 5 minutes. We get to the emergency room and I frantically talked to admittance telling them the story of the Trazadone and the Viagra. The nurse asked me, “Are you his emergency contact? Are you related to him?” I replied, 
 
 	“I’m his emergency contact and his lover. I do not want his sister involved in this.” They took him in immediately and place him in a private room. The doctor told me, “We are going to try medication first but if that doesn’t work, we are going to try a procedure on him.”
+	
 	I waited in the waiting room and read a magazine, and didn’t even think to praying. An hour went by and the doctor came and talked to me. He said, “The medicine did not work, so now we have to do a procedure. If this procedure doesn’t work, we’ll have to amputate his penis. 
 
 	“No! Do not amputate! Do the procedure first and keep doing it until you have successfully removed the blood, okay? I exclaimed “Okay, but if the clotted blood goes to his heart if could be fatal.” 
@@ -308,9 +360,10 @@ Another hour went by and he approached me again and told me it failed, that they
 	“I gave him a medicine that caused him to have a hard on for more than 5 hours and he’s going through the second procedure. Oh my gosh!  The second attempt succeeded.
 
 	Well, it’s time to go to John Holmes’s house and hang out at the pool. He also has a hot tub that spills in to the pool via water-fall. We drink, smoke and take Adderall. We also boil shrimp, at least Holmes’s does. He always so grateful to see us and bends over backwards to insure we are enjoying ourselves. He’s one of my best friends, if not my best friends. 
-		How did we meet, you may ask? Well, I was in my ‘95 Maxima and he was in his 2000 Tahoe. We were at the light at the corner of West Gray and studemont. He had his stereo blasting away Christina Aguilera and so was I. We both had Bose Systems and the both were loud. We were listening to the same song: I am beautiful.I waved him down to follow me to 
+		
+	How did we meet, you may ask? Well, I was in my ‘95 Maxima and he was in his 2000 Tahoe. We were at the light at the corner of West Gray and studemont. He had his stereo blasting away Christina Aguilera and so was I. We both had Bose Systems and the both were loud. We were listening to the same song: I am beautiful.I waved him down to follow me to 
 			
-		JR’s which in Montrose - one of the most popular gay bars. He walked in behind me and chased me around the bar and stopped me to have a drink. I wasn’t nervous; I just like the chase. 
+	JR’s which in Montrose - one of the most popular gay bars. He walked in behind me and chased me around the bar and stopped me to have a drink. I wasn’t nervous; I just like the chase. 
 
 	Back at Holmes’s house, I’m always single to Anastacia. Holmes’s is always smoking good weed and jamming to his outdoor Bose speakers. Alan Sloan is there so are Heidi and Jim, Robin, Jose, Holmes’s lover who lives with him fir free. He’s gorgeous and from Venezuela. All gorgeous people are form there. He’s a nice guy too and doesn’t really have to work.
 
