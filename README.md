@@ -25,7 +25,7 @@ It was a typical summer night in Houston, Texas. The stars were beaming through 
 	
 	I would run daily… even when splashing through the pavement of some torrential down-pour.
 
-	We loved each other very much. Mark adored me, before I had a chance to rest my head on the pillow on our soft, queen-sized bed that succumbed you to the call of sleep, he had his hand and arm behind my head pulling 	me toward him for a sweet wet kiss. I loved being loved by Mark and It was an amazing experience being around him; always something interesting. 
+	We loved each other very much. Mark adored me, before I had a chance to rest my head on the pillow on our soft, queen-sized bed that succumbed you to the call of sleep, he had his hand and arm behind my head pulling me toward him for a sweet wet kiss. I loved being loved by Mark and It was an amazing experience being around him; always something interesting. 
 	
 	It was a though I had a chance to relive all the negative experiences in relationships I’ve had prior, but instead this time making the right choices; choosing only the precise, selected words to say, making things better this go-round. As I glanced over at the shower,
 
@@ -361,10 +361,10 @@ Another hour went by and he approached me again and told me it failed, that they
 
 	Well, it’s time to go to John Holmes’s house and hang out at the pool. He also has a hot tub that spills in to the pool via water-fall. We drink, smoke and take Adderall. We also boil shrimp, at least Holmes’s does. He always so grateful to see us and bends over backwards to insure we are enjoying ourselves. He’s one of my best friends, if not my best friends. 
 		
-	How did we meet, you may ask? Well, I was in my ‘95 Maxima and he was in his 2000 Tahoe. We were at the light at the corner of West Gray and studemont. He had his stereo blasting away Christina Aguilera and so was I. We both had Bose Systems and the both were loud. We were listening to the same song: I am beautiful.I waved him down to follow me to 
+	How did we meet, you may ask? Well, I was in my ‘95 Maxima and he was in his 2000 Tahoe. We were at the light at the corner of West Gray and Studemont. He had his stereo blasting away to Christina Aguilera and so was I. We both had Bose Systems and they both were loud. We were listening to the same song: I am beautiful. I waved him down to follow me to 
 			
-	JR’s which in Montrose - one of the most popular gay bars. He walked in behind me and chased me around the bar and stopped me to have a drink. I wasn’t nervous; I just like the chase. 
+	JR’s which in Montrose - one of the most popular gay bars. He walked in behind me and chased me around the bar and stopped me to have a drink. I wasn’t nervous - I just like the chase. 
 
-	Back at Holmes’s house, I’m always single to Anastacia. Holmes’s is always smoking good weed and jamming to his outdoor Bose speakers. Alan Sloan is there so are Heidi and Jim, Robin, Jose, Holmes’s lover who lives with him fir free. He’s gorgeous and from Venezuela. All gorgeous people are form there. He’s a nice guy too and doesn’t really have to work.
+	Back at Holmes’s house, I’m always playing Anastacia. Holmes’s is always smoking good weed and jamming to his outdoor Bose speakers. Alan Sloan is there so are Heidi and Jim, Robin, Jose, Holmes’s lover who lives with him fir free. He’s gorgeous and from Venezuela. All gorgeous people are form there. He’s a nice guy too and doesn’t really have to work.
 
 *This is incomplete but I’m working on finishing with other projects*
